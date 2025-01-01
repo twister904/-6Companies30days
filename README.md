@@ -55,8 +55,8 @@ _**Note**: As I complete each day’s questions, I’ll add the links to the res
 
 Stay updated with my challenge progress on social media:
 
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/saifimazhar8/) 🌐
-- **Twitter**: [@YourTwitterHandle](https://x.com/itsmazharsaifi) 🐦
+- **LinkedIn**: [My linkedin](https://www.linkedin.com/in/saifimazhar8/) 🌐
+- **Twitter**: [My X account](https://x.com/itsmazharsaifi) ✖️
 
 Feel free to reach out for collaboration, mentorship, or discussion. Let’s learn and grow together! 🤝
 
@@ -66,7 +66,7 @@ Feel free to reach out for collaboration, mentorship, or discussion. Let’s lea
 
 Check out my progress in images as I work through the challenge!
 
-![Day 1 Progress]([https://via.placeholder.com/800x400.png?text=Day+1+Progress](https://x.com/itsmazharsaifi/status/1874549468152087015))  
+![Day 1 Progress](https://pbs.twimg.com/media/GgO8Zu5agAA7Tbi?format=png&name=large)  
 *Day 1 Progress – Getting started!* 🚀
 
 
